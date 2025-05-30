@@ -1,3 +1,3 @@
 griefer smoking a zoot lol
 
-![Untitled3527_20250530213724](https://github.com/user-attachments/assets/bc828200-8585-49f4-8511-6950a36bae8c) 
+![Untitled4_20250530225115](https://github.com/user-attachments/assets/0e767f68-f7ce-44c2-a073-5e922e44cd4c)
